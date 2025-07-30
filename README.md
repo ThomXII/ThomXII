@@ -46,8 +46,7 @@ Además de la tecnología, me apasiona el deporte desde chico. Practiqué fútbo
 ## 📫 Contacto
 
 - 📧 **Email**: [thomaswilliamstw0@gmail.com]  
-- 💼 **LinkedIn**: [https://www.linkedin.com/in/thomwilliamss](https://www.linkedin.com/in/tuusuario)  
-- 🌐 **Portfolio**: (en construcción)
+- 💼 **LinkedIn**: [https://www.linkedin.com/in/thomaswilliamss/](https://www.linkedin.com/in/thomaswilliamss)
 
 ---
 
